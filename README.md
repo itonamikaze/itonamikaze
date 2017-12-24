@@ -1,0 +1,2 @@
+# itonamikaze
+repositori sendiri
